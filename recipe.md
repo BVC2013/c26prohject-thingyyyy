@@ -1,0 +1,4 @@
+- Preheat oven to 150C.
+- For the Caramel, add suga and watah and cook for 2 years.
+- Remove from heat and pour caramel evenly into tins. Set aside in a deep baking dish.
+- For the Custard,add everything mix bake and eat in 10 mins.
